@@ -6,3 +6,5 @@ Joffrey Baratheon was the one to do Ned in, but his story was only about to
 being, and let me assure you he will DEFINITELY NOT DIE!
 
 A week later Joffrey stubbed his toe on the fireplace and sadly perished.
+
+And life went on.
